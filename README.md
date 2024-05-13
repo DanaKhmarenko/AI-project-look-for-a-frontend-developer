@@ -23,4 +23,4 @@ P.S. I will always be open to communication, work and also to improve the produc
 
 Salary: You, as a partner in the project, will have 50% of the profit of each product (like me). 
 
-Contact me if you are interested in cooperation! Contacts: tg - @troyanbi
+Contact me if you are interested in cooperation! Contacts: tg - @troyanbi; email - darciedework@gmail.com
